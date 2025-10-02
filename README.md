@@ -84,6 +84,6 @@ Esto permite un análisis flexible y segmentado desde múltiples perspectivas.
 
 **Marcos Gabriel Céspedes**  
 📧 marcos.ces93@hotmail.com 
-🔗 [LinkedIn](https://www.linkedin.com/in/marceloces/)  
+🔗 [LinkedIn](https://www.linkedin.com/in/marcosces/)  
 
 ---
